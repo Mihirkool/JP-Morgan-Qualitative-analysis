@@ -1,0 +1,1 @@
+# JP-Morgan-Qualitative-analysis
